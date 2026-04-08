@@ -1,4 +1,4 @@
-# 🏛️ Proyecto El Santuario: El Triunfo del Olfato sobre el Ruido
+# 🏛️ El Triunfo de la "malicia indigena (olfato)" sobre el Ruido
 
 > **Ubicación del Análisis:** El Santuario, Antioquia, Colombia.
 > **Fecha:** 7 de Abril de 2026.
